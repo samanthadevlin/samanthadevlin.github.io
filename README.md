@@ -1,1 +1,0 @@
-# samanthadevlin.github.io
